@@ -3,7 +3,7 @@
 ⪩⪨ more info in prn.cc/prn.page!! 
 hihi names ari/vix! can call me lute or charlie!! 
 
-⧼ val fictkin & 10-/20+ yrs dniuc/iwcuf
+⧼ val fictkin & 12-/20+ yrs dniuc/iwcuf
 
 『 she/belle!
 
