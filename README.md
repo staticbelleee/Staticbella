@@ -7,7 +7,7 @@ hihi names ari/vix! can call me lute or charlie!!
 
 『 she/belle!
 
-ʚ ily O <3
+ʚ basic dni
 
 <img width="640" height="91" alt="17714177811285378650828066740894" src="https://github.com/user-attachments/assets/57bd4626-842f-48c9-bcee-1684582fb435" />
 
